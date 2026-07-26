@@ -2,7 +2,7 @@
 °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･ 
 </p> 
 <p align="center">
-<img width="680" height="588" alt="4th_anniversary_site_pure_vanilla_2" src="https://github.com/user-attachments/assets/deb3c397-b23c-49e7-b6d8-e8385a0d87ac" />
+<img width="283" height="286" alt="Timeless_love" src="https://github.com/user-attachments/assets/8e92410a-93cd-49e6-ab45-eb7a8ea75e33" />
 </p>
 <p align="center"> 
 °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
