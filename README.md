@@ -2,7 +2,7 @@
 °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･ 
 </p> 
 <p align="center">
-<img width="283" height="286" alt="pvch" src="https://github.com/user-attachments/assets/74321629-e869-4f5f-8800-5b154953b4a5" />
+<img width="200" height="121" alt="timekeeper-cookie-cookie-run" src="https://github.com/user-attachments/assets/f6feecc1-62a4-4067-9468-6ed1a51e823c" />
 </p>
 <p align="center"> 
 °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
