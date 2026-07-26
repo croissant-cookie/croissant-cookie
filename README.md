@@ -1,4 +1,4 @@
-## Hi there 👋
+## (WIP)
 
 <!--
 **pure-vanilla-cookies/pure-vanilla-cookies** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
