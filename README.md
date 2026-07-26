@@ -2,7 +2,7 @@
 °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･ 
 </p> 
 <p align="center">
-<img width="283" height="286" alt="Timeless_love" src="https://github.com/user-attachments/assets/8e92410a-93cd-49e6-ab45-eb7a8ea75e33" />
+<img width="283" height="286" alt="pvch" src="https://github.com/user-attachments/assets/74321629-e869-4f5f-8800-5b154953b4a5" />
 </p>
 <p align="center"> 
 °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
