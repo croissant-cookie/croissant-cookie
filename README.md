@@ -3,7 +3,7 @@
 ꒷꒦꒷꒦꒷°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･꒷꒦꒷꒦꒷
 </p> 
 <p align="center">
-<img width="505" height="328" alt="Cookie0166_tm01_bg_simple" src="https://github.com/user-attachments/assets/cf2408c5-bfdb-4e92-a678-2a8d985cb7b9" />
+<img width="200" height="121" alt="timekeeper-cookie-cookie-run" src="https://github.com/user-attachments/assets/ab4bdd36-61e6-4159-8790-c8052e181733" />
 </p>   
 <p align="center">  
 ꒷꒦꒷꒦꒷ °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･꒷꒦꒷꒦꒷ 
