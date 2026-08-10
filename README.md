@@ -3,7 +3,7 @@
 ꒷꒦꒷꒦꒷°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･꒷꒦꒷꒦꒷
 </p> 
 <p align="center">
-<img width="160" height="160" alt="ezgif-8906371d3142453f" src="https://github.com/user-attachments/assets/251b255a-2f37-4ca8-af91-0ceb4a4f9908" />
+<img width="280" height="280" alt="ezgif-8c87d917cc6cd342" src="https://github.com/user-attachments/assets/61cb82bf-0145-4215-9665-da07c5e07954" />
 </p>   
 <p align="center">  
 ꒷꒦꒷꒦꒷ °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･꒷꒦꒷꒦꒷ 
