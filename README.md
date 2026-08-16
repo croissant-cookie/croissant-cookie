@@ -8,5 +8,5 @@
 <p align="center">  
 ꒷꒦꒷꒦꒷ °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･꒷꒦꒷꒦꒷ 
 <p align="center">  
-Hi! You can call me Autumn. I'm usually drawing, playing a game, or talking to a friend while I'm on Pony Town, but you're free to whisper me if you don't mind slower replies at times.
+Welcome to my page. I'm usually drawing, playing a game, or talking to a friend while I'm on Pony Town, but you're free to whisper me if you don't mind slower replies at times.
 </p>   
