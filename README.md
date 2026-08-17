@@ -3,7 +3,7 @@
 ꒷꒦꒷꒦꒷°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･꒷꒦꒷꒦꒷
 </p> 
 <p align="center">
-<img width="260" height="260" alt="tumblr_acd917f15199a341bac3dd1f73f85649_c9628d86_1280" src="https://github.com/user-attachments/assets/23ff281c-d27d-4823-aad6-810821f75855" />
+<img width="277" height="206" alt="Crk_asphodel_joy" src="https://github.com/user-attachments/assets/3fb5f637-eb89-4e0e-98f7-e51eb84b1fbd" />
 </p>   
 <p align="center">  
 ꒷꒦꒷꒦꒷ °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･꒷꒦꒷꒦꒷ 
